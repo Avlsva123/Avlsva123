@@ -1,0 +1,8 @@
+- ★ Welcome to my page ! ★
+- starsforme Avelisva starsforme
+- Female|2d|nswf+
+- @Avlsva123
+- ART STATUS
+- Commissions: OPEN
+- Trade and collabs: @Kapusta123
+- 📫  discord magro#7592
